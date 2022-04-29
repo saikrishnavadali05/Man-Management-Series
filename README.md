@@ -16,3 +16,14 @@ These three should be kept in mind because we should not commit such a sin and s
 
 #ManManagementSeries by #srisathyasaibaba
 
+### Episode 154 :
+
+Re-engineering - Suppose a factory is financially weak, they will be prepared to go for all kinds of loans in a desperate manner. Then buy that industry at a cheap price. Why has it become cheap and why has this decline come? Is it because the industry has no money or is it because of mismanagement or merely innocence? You study well! The study is re-engineering. Re-engineering is to study where the mistake lies. Totalling or calculating is not re-engineering. For what reason has it come to this stage? You should study this very well and then you should solve this problem. Only then progress will be made. When it grows, then bring back the person whom you had bought it, explain everything to him. You can also make him a partner. Then only you will get the value of re-engineering. Because he sold it at a cheap price, do not buy it. Because of his innocence, it has come to this state. So explain to him that because of his innocence, it has happened like that and tell him to take care in the future. Make him a partner or a director or a shareholder. If you do that, factories will never close down in India.  
+
+Ceiling On Desires -  What our students should do is to make sure that the factories will never be closed down in a hasty manner. Our life today depends on industries and right from dawn to dusk we use various items manufactured in industries. In the morning we require toothpaste, a toothbrush, soap, comb, mirror, etc. Where from do you get all these things? You buy them from the market. But from where does the market receive these? We should develop even the small things. When we do that, our country will become Annapoorna and there will be no shortage of anything. But now what happens is that money is with the rich only and the poor are becoming poorer. The middle class people are staying in the same position. We should have equality in society, though the same in absolute terms is impossible. The reason being that there is no balance in money.  
+
+#spirituality #inspiration #motivation #society #lifeadvice 
+#leadershipskills
+
+#ManManagementSeries by #srisathyasaibaba
+
